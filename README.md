@@ -1,1 +1,2 @@
-esto es una prueba de como crear un repositorio y clonarlo desde github a mi computadora.
+yo pude matar a raime en Dark souls 2 fu ck yea
+
